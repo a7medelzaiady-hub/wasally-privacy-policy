@@ -1,0 +1,1 @@
+# wasally-privacy-policy
